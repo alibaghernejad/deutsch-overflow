@@ -1,6 +1,6 @@
 # Deutsch lernen bei Musikhören einfach sein
 
-Diese Musik von [#DirkBusch](https://google.com) zeigt uns, wie man bei Musik hören, Deutsch lernen kann. gGg
+Diese Musik von [Dirk Busch](https://open.spotify.com/artist/5lYnJiMALhgHHJQG82EuIr) zeigt uns, wie man bei Musik hören, Deutsch lernen kann.  
 Es gibt mehr als 24 adj in dieser Musik.  
 
 Sie beisst und kratzt  
